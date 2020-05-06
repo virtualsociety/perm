@@ -1,0 +1,1 @@
+Virtual Society Permanent links
